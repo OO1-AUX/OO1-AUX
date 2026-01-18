@@ -1,3 +1,5 @@
-![Tumblr_l_237028494549758](https://github.com/user-attachments/assets/f3e83d21-b4b7-46ff-97cc-3a1cab04326c) 
+ ${\textsf{\color{#CBB799}⠀⠀⠀I love my friends.} }$
 
-　　![Tumblr_l_236880996831441](https://github.com/user-attachments/assets/3dee40a0-c1c4-45b1-9209-5130fdc85536)　　![Tumblr_l_236939342177599](https://github.com/user-attachments/assets/7a0dca54-5ed9-44f5-99c3-569e2f2b1b87) ‎‎    ‎‎ ‎![Tumblr_l_236948022017599](https://github.com/user-attachments/assets/d433e7ad-7cb3-4475-8bf4-322748305dae)
+<img width="2048" height="1543" alt="Tumblr_l_128456719938425" src="https://github.com/user-attachments/assets/dbff1a65-8bd5-4ec3-beb8-b83638968c45" />
+
+<img width="2048" height="1543" alt="Tumblr_l_128455259218040" src="https://github.com/user-attachments/assets/c47b5bcb-9f7c-4567-b841-ada51ea02613" />
