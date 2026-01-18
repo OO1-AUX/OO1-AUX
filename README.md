@@ -8,6 +8,7 @@ ${\textsf{\color{#3365f9}I'm not that active on pony town as I used to be but I 
 
 ${\textsf{\color{#3365f9}I do not want nor wish to be added on random occasions as these requests will be denied half-heartedly.} }$
 
-${\textsf{\color{#3365f9}If you do so happen to converse with me, us being friends may turn out unlikely as I lose social battery quickly and I am a very selective person with my friends. I do not wish nor want to encourage to upset you at all! I only ask of you to not be mad if I run off to another foe I'm closer with so do 𝙄𝙉𝙏𝙀𝙍𝘼𝘾𝙏 𝙒𝙄𝙏𝙃 𝘾𝘼𝙐𝙏𝙄𝙊𝙉 if you wish to befriend me.} }$
- 
- ![Watching_you_always](https://github.com/user-attachments/assets/5be7e147-94db-46ca-8d86-45b6dccc7839)
+${\textsf{\color{#3365f9}I'm a very selective person with my friends. I apologize if I upset you.} }$
+
+
+![Watching_you_always](https://github.com/user-attachments/assets/5be7e147-94db-46ca-8d86-45b6dccc7839)
